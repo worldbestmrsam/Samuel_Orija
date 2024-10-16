@@ -5,5 +5,5 @@
     ○💁‍♂️I am looking to collaborate on some data analytics projects.
     ○💡I share inspirational content and tips on data analytics and data science on my Youtube channel(https://www.youtube.com/@TheBestMrSam)
     ○🤝I am also looking to collaborate on Youtube videos!
-    ○📧You can contact me on @adewunmisamuel2018@gmail.com
+    ○📧You can contact me on adewunmisamuel2018@gmail.com
     
